@@ -5,7 +5,8 @@
 
 💬 Ask me about React, Node.js, or any other full-stack development topics
 
-📫 How to reach me: rami3eco3@gmail.com
+📫 How to reach me: rami9b3@live.fr
+                     +216 790 518
 
 ⚡ Fun fact: I'm always looking for new challenges and opportunities to improve my skills
 
